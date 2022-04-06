@@ -1,4 +1,1 @@
-- 👋 Hi
-- 👀 
-- 🌱 
-- 📫 
+- aveces, aveces la vida si vale la pena 
